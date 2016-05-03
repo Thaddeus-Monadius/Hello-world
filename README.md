@@ -1,4 +1,3 @@
 # Hello-world
-the beginning
 
-I already messed this up?
+I have a plan for innovative salubrious systems and this is one small step to bringing them into frutition.
